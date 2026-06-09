@@ -1,4 +1,4 @@
-# 
+# Avançado ESET NOD32 plugins para Mac OS | Elite ESET NOD32 plugins para PC Windows. Com monitoramento de violações e servidores de alta velocidade — otimizado para máximo desempenho em cada plataforma.
 
 
 
